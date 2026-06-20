@@ -54,4 +54,4 @@ If this policy changes, the updated version will be posted on this page.
 
 ## Contact
 
-Questions about privacy? Email **sam.vadiee@gmail.com**.
+Questions about privacy? Email **sam.urmian@gmail.com**.
